@@ -130,9 +130,9 @@ Oferecemos modelos de licenciamento flexíveis para se adequar ao seu orçamento
 
 Elias Andrade, Arquiteto de IA e Engenheiro de Soluções da Replika AI Solutions, é um especialista em transformar a inteligência artificial em resultados tangíveis para empresas de todos os tamanhos. Com sede em Maringá, Paraná, Elias tem um histórico comprovado na criação de soluções inovadoras baseadas em IA, incluindo web apps de IA, chatbots e sistemas multi-agentes.
 
-*   **LinkedIn:** [https://www.linkedin.com/in/elias-andrade-ai](https://www.linkedin.com/in/elias-andrade-ai)
+*   **LinkedIn:** [https://www.linkedin.com/in/itilmgf](https://www.linkedin.com/in/itilmgf)
 *   **WhatsApp:** +55 11 9 1335-3137
-*   **Replika AI Solutions:** [https://www.replika.ai](https://www.replika.ai)
+*   **Replika AI Solutions:** [https://www.replika.ai](https://www.replikaia.com.br)
 
 **Transforme a IA em Vantagem Competitiva com MyChat!**
 
